@@ -20,3 +20,5 @@ Uma abordagem bem-sucedida pode servir como modelo para outras áreas da empresa
 
 
 VBMN [SAC DE ALTA PEFORMANCE - EBOOK E PODCAST.pdf](https://github.com/user-attachments/files/18625881/SAC.DE.ALTA.PEFORMANCE.-.EBOOK.E.PODCAST.pdf)
+
+***Podcast em arquivos anexos:"SACast: Solução antes do problema - O atendimento que age antes da dor"
